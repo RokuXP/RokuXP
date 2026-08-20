@@ -9,7 +9,7 @@
 </p>
 <a href="https://ibb.co/zWjjRBj6"><img src="https://i.ibb.co/6cVVPTVX/file-000000005c7081fda73179c2a02592da.png" alt="file-000000005c7081fda73179c2a02592da" border="0"></a><br /><a target='_blank' href='https://fa.imgbb.com/'></a><br />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=9&duration=4000&pause=1000&color=B7BD1A&width=300&lines=There+is+nothing+more+beautiful+than+being+by+your+side.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=24&duration=4000&pause=1000&color=F7A277&width=800&lines=There+is+nothing+more+beautiful+than+being+by+your+side.)](https://git.io/typing-svg)
 
 <a href="https://ibb.co/0Vsg8PM8"><img src="https://i.ibb.co/k6mRkY8k/file-0000000041dc81f4849da8f24a5c5f85.png" alt="file-0000000041dc81f4849da8f24a5c5f85" border="0"></a>
 
