@@ -1,5 +1,7 @@
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/Q37StH66/IMG-20260807-135238-014.png" alt="IMG 20260807 135238 014" border="0"></a>
 
+<a href="https://ibb.co/Kx4XYLX8"><img src="https://i.ibb.co/VYntdQtk/file-00000000233081f49ecfa2d20fa3381e.png" alt="file-00000000233081f49ecfa2d20fa3381e" border="0"></a>
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=439754&width=435&lines=You+shine+like+the+sun+in+my+eyes.)](https://git.io/typing-svg)
 
 <p
