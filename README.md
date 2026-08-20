@@ -11,5 +11,6 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=9&duration=4000&pause=1000&color=B7BD1A&width=300&lines=There+is+nothing+more+beautiful+than+being+by+your+side.)](https://git.io/typing-svg)
 
-<a href="https://ibb.co/GDQCz8d"><img src="https://i.ibb.co/JTjrDGc/IMG-20260807-143553-905.jpg" alt="IMG-20260807-143553-905" border="0"></a>
+<a href="https://ibb.co/0Vsg8PM8"><img src="https://i.ibb.co/k6mRkY8k/file-0000000041dc81f4849da8f24a5c5f85.png" alt="file-0000000041dc81f4849da8f24a5c5f85" border="0"></a>
+
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/Q37StH66/IMG-20260807-135238-014.png" alt="IMG 20260807 135238 014" border="0"></a>
