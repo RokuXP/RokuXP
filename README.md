@@ -1,4 +1,1 @@
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/Q37StH66/IMG-20260807-135238-014.png" alt="IMG 20260807 135238 014" border="0"></a>
-
-
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/Q37StH66/IMG-20260807-135238-014.png" alt="IMG 20260807 135238 014" border="0"></a>
+<a href="https://ibb.co/SX68G6JB"><img src="https://i.ibb.co/pv1851nd/Chat-GPT-Image-Aug-24-2026-09-10-00-PM.png" alt="Chat-GPT-Image-Aug-24-2026-09-10-00-PM" border="0"></a>
